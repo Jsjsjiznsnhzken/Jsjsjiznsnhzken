@@ -9,4 +9,4 @@
 <!---
 Jsjsjiznsnhzken/Jsjsjiznsnhzken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+---Create a 3D illustration for a whatsapp profile picture when a boy is a black shirt sits casually on a wing back chair wearing sneakers,a black cricket cap,and sunglasses,he looks a head.the background pictures AKASH in big and capital white fonts on the black wall.there should not be his shadow,and there are wings to make it appear as if he is an angel.
